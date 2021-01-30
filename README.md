@@ -1,2 +1,1 @@
-# resume
-My Resume https://github.com/ArbeenaKhanum/resume/blob/master/Arbeena%20Khanum%20Resume.pdf
+**[My Resume](https://drive.google.com/file/d/1hlpniKF7H8JJfXO1YqAKT3NyHC6EmqZr/view?usp=sharing)**
