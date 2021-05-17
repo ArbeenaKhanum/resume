@@ -1,1 +1,1 @@
-:page_with_curl: **[My Resume](https://drive.google.com/drive/folders/1zxLVZOxpDzA75htNRglH_v6N4dLR3mkT)**
+:page_with_curl: **[My Resume](https://drive.google.com/file/d/1qzNnZQ2Xmu2ucgIx0a_1vYQrRX-5DcG4/view?usp=sharing)**
